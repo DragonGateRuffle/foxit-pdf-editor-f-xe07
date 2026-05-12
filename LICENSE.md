@@ -1,4 +1,4 @@
-# 
+# Enhance Foxit PDF Editor for PC | Foxit PDF Editor for Windows with new Foxit PDF Editor for PC | Foxit PDF Editor for Windows Module | cloud-integration + OCR, the #1 module.
 
 
 
